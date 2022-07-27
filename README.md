@@ -1,0 +1,1 @@
+so bassicaly this is gonna be a bad looking website with lots of headers, links, and images. we will see how it goes.
